@@ -4,8 +4,7 @@
 - 👀 I’m interested in exploring the intersection of creativity and logic, diving deep into complex ideas, and building meaningful connections through innovative projects.  
 - 🌱 I’m currently learning how to align my personal growth with my professional aspirations, focusing on problem-solving, strategic thinking, and creative pursuits.  
 - 💞️ I’m looking to collaborate on projects that challenge conventional thinking, foster personal and team growth, and create a positive impact.  
-- 📫 How to reach me: Drop me a message here, or connect with me via email or LinkedIn.  
-- 😄 Pronouns: He/Him  
+- 📫 How to reach me: Connect with me via email or LinkedIn.  
 - ⚡ Fun fact: I love balancing big-picture thinking with meticulous attention to detail—it’s how I turn abstract ideas into actionable plans. Also, I’m on a journey to embrace both the uncertainty of life and its exciting possibilities.  
 
 # > Contact info
